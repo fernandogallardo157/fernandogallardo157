@@ -10,5 +10,4 @@
 
 fernando.gallardo@escola.pr.gov.br
 
-![](![image](https://github.com/fernandogallardo157/fernandogallardo157/assets/144288943/f89813fa-feb1-4e8f-bfb7-425f1a66150a)
-)
+![](https://media.tenor.com/5ht6PgzAg50AAAAC/kazuma.gif)
