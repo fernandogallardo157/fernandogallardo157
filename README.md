@@ -10,4 +10,5 @@
 
 fernando.gallardo@escola.pr.gov.br
 
-![](https://media.tenor.com/S0nn342Fz8QAAAAC/aki.gif)
+![](![image](https://github.com/fernandogallardo157/fernandogallardo157/assets/144288943/f89813fa-feb1-4e8f-bfb7-425f1a66150a)
+)
