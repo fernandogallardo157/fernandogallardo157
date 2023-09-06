@@ -10,4 +10,4 @@
 
 fernando.gallardo@escola.pr.gov.br
 
-![](https://media.tenor.com/5ht6PgzAg50AAAAC/kazuma.gif)
+![](https://media.tenor.com/SG0YhQcldrkAAAAC/zero-two-thinking.gif)
